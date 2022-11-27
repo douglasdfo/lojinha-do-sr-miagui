@@ -1,1 +1,1 @@
-# loginha-do-sr-miagui
+# lojinha-do-sr-miagui
